@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mukhopadhyayoishik@gmail.com**
 
-- 📄 Know about my experiences [https://app.luminpdf.com/viewer/64c603005b012d4302e3e1ac](https://app.luminpdf.com/viewer/64c603005b012d4302e3e1ac)
+- 📄 Know about my experiences [https://app.luminpdf.com/viewer/65203e62d1ef007b0f9e896f]
 
 - ⚡ Fun fact **I love data because it solves problems**
 
